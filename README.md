@@ -1,2 +1,2 @@
 # Learn-Web
-Sesuai Nama Learn-Web :v
+Sesuai Nama Learn-Web ^_^
